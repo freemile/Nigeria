@@ -1,2 +1,2 @@
 # Nigeria
-i pldge to nigeria my country
+i pledge to nigeria my country
